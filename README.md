@@ -1,0 +1,1 @@
+# Ma-n-yr-nm-vasit-sil-d-l-duzlu-un-a-karlanmas-
